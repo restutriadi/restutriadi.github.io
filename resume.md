@@ -2,8 +2,8 @@
 
 Mahasiswa Ilmu Komputer IPB
 
-*Jl Wijaya Kusuma II Tangerang Selatan 15412*\
-*+62 899-8199-294*\
+*Jl Wijaya Kusuma II Tangerang Selatan 15412*
+*+62 899-8199-294*
 *restutriadi@gmail.com*
 
 ## Pendidikan
